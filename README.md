@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> أسرار في قلبي مش هتكشف
+> نار الهوى في روحي بتعزف
+> نظرة عيونك تسحرني أكتر
+> في ليل الغرام حبك بيخطف
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
